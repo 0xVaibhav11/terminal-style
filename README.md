@@ -1,3 +1,3 @@
 ### terminal-style
 
-For me, BY me (●'◡'●)
+For me, BY me 😎
